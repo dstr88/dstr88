@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with React
 - 📫 How to reach me: terere@samerica.com
 - 😄 Pronouns: He, Him
-- ⚡ Fun fact: optomistic, servant, and still a student life is good!
+- ⚡ Fun fact: optimistic, servant, and still a student life is good!
 si hablo español
 五年我学习汉语但是玩乐大的多
 -->
