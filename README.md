@@ -1,4 +1,2 @@
-Interested in Crypto, ESL, tools for small businesses
-I am learning from Ivanontech.com
-I have been coding for only a couple years.
+Interested in Crypto, ESL, tools for small businesses and web development
 check out my portfolio for more information
